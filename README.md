@@ -17,4 +17,5 @@ E-MAIL:redtom@gmail.com
 
 - tecnico de instalacao de internet
 - ajudande em obras 
-- tecnologo 
+- tecnologo
+- Instrutor de Navegação no meio de tubarões
